@@ -1,1 +1,0 @@
-# rodcurvelo.github.io
